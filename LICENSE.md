@@ -1,4 +1,4 @@
-# 
+# custom MathType for PC | MathType for Windows Extension | matrix-operations + statistical-analysis offers the most advanced MathType for PC | MathType for Windows extension, with
 
 
 
